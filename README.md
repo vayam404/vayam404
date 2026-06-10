@@ -83,8 +83,6 @@
 ```
 Running VBH Studios — digital agency, Dehradun
 B.Tech IoT — UPES Dehradun
-Media Head — Manthan, UPES official marketing club
-3x Karate Nationalist
 ```
 
 </div>
